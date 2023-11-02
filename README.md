@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Esd3s
-- 👀 I’m interested in AI
+- 👀 I’m interested in eveyrthing
 - 🌱 I’m currently learning all i can
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me ? don't know
